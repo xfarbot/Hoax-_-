@@ -1,1 +1,1 @@
-# Seng penting yakin sek :D
+# Seng penting yakin sek
