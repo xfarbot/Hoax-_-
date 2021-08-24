@@ -1,1 +1,0 @@
-# Seng penting yakin sek
